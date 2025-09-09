@@ -6,4 +6,4 @@ Paper Link:
 Dataset Link: 
 If you want to use the dataset, I hope you can send the email to me.
 
-Email: zhaojuan_0304@163.com/zhaojuan0304@gmail.com
+Email: 32409021@mail.imu.edu.cn / zhaojuan_0304@163.com
